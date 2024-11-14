@@ -1,1 +1,0 @@
-# ShraddhaGanesh.github.io
